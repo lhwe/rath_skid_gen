@@ -4,7 +4,6 @@ I added colors so it looks nicer, idk why tho tbh
 Join the [Discord](https://discord.gg/9fN6ZVPbYT)
   - Side note, his exe logger isnt that good :/ [VT](https://www.virustotal.com/gui/file/ffaf4038e7d40f06afc39342229a16c3e5e1af26211fd630389228af53e1e38c?nocache=1)
 # Proofs: :trollface:
-In the next set of images, you will see evidence
 ![image](https://github.com/cu-m/rath_skid_gen/assets/61995036/561ba656-68c9-401e-b0bc-a6f3c8d9ce27)
 ![image](https://github.com/cu-m/rath_skid_gen/assets/61995036/39ea45b8-f04b-4d37-9069-9e8543f9afa7)
 ![image](https://github.com/cu-m/rath_skid_gen/assets/61995036/fa3e915e-498a-49fd-a92d-9dfd3042228e)
