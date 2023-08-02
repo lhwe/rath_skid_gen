@@ -13,5 +13,6 @@ Join the [Discord](https://discord.gg/9fN6ZVPbYT)
 ![image](https://github.com/cu-m/rath_skid_gen/assets/61995036/efbdea3d-d268-49ec-b524-cef1a6bccaf4)
 ![image](https://github.com/cu-m/rath_skid_gen/assets/61995036/a3dee0a8-0c30-45a1-9207-a0f12a0ba2f8)
 ![image](https://github.com/cu-m/rath_skid_gen/assets/61995036/33b5b218-1138-4285-b20b-2f51c23e16cb)
+![image](https://github.com/lhwe/rath_skid_gen/assets/61995036/aa5e0076-475d-4a4a-ae42-62e103b88e10)
 ![image](https://github.com/cu-m/rath_skid_gen/assets/61995036/a73b65eb-ba93-496e-a46e-cbcf57d1797e)
   👈 renamed it for fun
