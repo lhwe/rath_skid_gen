@@ -1,7 +1,7 @@
 # 𝙧𝙖𝙩𝙝#8595 (user id: 1090928509859414047) skidded storecard scam leaked
 I added colors so it looks nicer, idk why tho tbh
 
-Join the [Discord](https://discord.gg/9fN6ZVPbYT)
+[AD] Use [comet image host](https://cometbot.info)! It is a free image host!
   - Side note, his exe logger isnt that good :/ [VT](https://www.virustotal.com/gui/file/ffaf4038e7d40f06afc39342229a16c3e5e1af26211fd630389228af53e1e38c?nocache=1)
 # Proofs: :trollface:
 ![image](https://github.com/cu-m/rath_skid_gen/assets/61995036/561ba656-68c9-401e-b0bc-a6f3c8d9ce27)
